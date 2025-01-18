@@ -1,0 +1,1 @@
+Some common phrases or slogans that incorporate the themes of eating, laziness, and sleep include "Eat Sleep Repeat", "Lazy Days Ahead", "Fuel Your Snooze", "Sleepy Eats Delights", and "Nap Mode Activated". These catchphrases aim to evoke a sense of relaxation and indulgence, making them perfect for a shirt design that celebrates the joys of eating, laziness, and sleep.
